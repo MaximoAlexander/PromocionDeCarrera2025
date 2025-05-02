@@ -1,1 +1,1 @@
-"# PromocionDeCarrera2025" 
+Promocion de carrera 2025 
